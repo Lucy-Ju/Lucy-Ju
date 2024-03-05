@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to flirt with Polinge
 - 💞️ I’m looking to collaborate on Polinge's heart
 - 📫 How to reach me : do it if you're Polinge
-- 😄 Pronouns: She/her
+- 😄 Pronouns: I'm she but I want to be her's
 - ⚡ Fun fact: Polinge is actually my crush
 
 <!---
